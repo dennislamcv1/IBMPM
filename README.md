@@ -1,5 +1,5 @@
 # IBMPM
-## IBM Product Manager Professional Certificate
+## IBM Product Manager Professional Certificate (7 course series)
 
 Prepare for a career in the high-growth field of product management. In this program, you’ll learn in-demand skills like market research, strategic planning, and stakeholder communication to get job-ready in less than 6 months, with no prior experience needed to get started.
 
